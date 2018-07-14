@@ -1,1 +1,0 @@
-# My-Computer-Security-Diary
